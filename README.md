@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @NexysStormcloud
-- 👀 I’m interested in Game development and looking for collaborate on big game project as developer,  3d modeller or vfx artist
+- 👀 I’m interested in Game development and looking for collaborate on big game project as developer,  3d artist or vfx artist
 - 📫 How to reach me: t.me/@OdiOmnes, nexys.stormcloud@gmail.com
 
 <!---
